@@ -1,1 +1,0 @@
-# quadcoremark-2024
